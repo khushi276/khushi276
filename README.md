@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @khushi276 (KHUSHI)
+- ONE DIRECTION, LITTLE MIX, BLACKPINK, BTS & CNCO 🥰❤️
